@@ -1,0 +1,2 @@
+# yeniisikecemaq
+Hiçbiş Bakma Boşa
